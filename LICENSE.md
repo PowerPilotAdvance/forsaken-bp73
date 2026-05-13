@@ -1,4 +1,4 @@
-
+Download Free forsaken Script exclusive for forsaken and experience the ultimate in gameplay enhancement with infinite resources and one-hit kill. Designed for gamers who demand
 
 
 
